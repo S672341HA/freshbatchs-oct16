@@ -1,3 +1,11 @@
+Good decisions lead to Leadership Success
+How to influence others..
+Conflict Management for Leaders
+Effective Communication for Managers
+Building high performing teams
+Building Trust
+Managing Teams
+Master Class
 Kick off	All	1	Microsoft Teams	07-Nov-22	07-Nov-22	10:00 AM	11:00 AM
 Mentoring Session 1	All	2	Microsoft Teams	14-Nov-22	14-Nov-22	10:00 AM	12:00 PM
 Mentoring Session 2	All	2	Microsoft Teams	21-Nov-22	21-Nov-22	10:00 AM	12:00 PM
